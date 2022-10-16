@@ -7,4 +7,4 @@
 #### Заголовок 4
 >>>> цитата
 
-Отсутвует картинка
+![Пустыня](https://vsegda-pomnim.com/uploads/posts/2022-04/1649239295_9-vsegda-pomnim-com-p-krasivaya-pustinya-foto-10.jpg)
